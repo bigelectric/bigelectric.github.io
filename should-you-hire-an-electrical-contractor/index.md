@@ -18,7 +18,7 @@ So while DIY can save you some money, screwing up can cost you a lot more. So if
 
 ## 7 Reasons You Need an Electrical Contractor
 
-Hiring a contractor drastically minimizes the chance that something will go wrong to the point it’s negligible. An electrical contractor knows all the safety codes and regulations and makes sure their work abides by them to the tee. This gives you peace of mind knowing that you and your property is in excellent hands.
+Hiring a contractor drastically minimizes the chance that something will go wrong to the point it’s negligible. An electrical contractor knows all the safety codes and regulations and makes sure their work abides by them to the tee. This gives you peace of mind knowing that you and your property are in excellent hands.
 
 Besides being the safest route for handling electrical work, here are a few more reasons why hiring an electrical contractor makes sense. Basically, an electrical contractor:
 
