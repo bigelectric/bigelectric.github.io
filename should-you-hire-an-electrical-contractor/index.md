@@ -1,6 +1,6 @@
 # Should You Hire an Electrical Contractor?
 
-The internet has been both a blessing and a curse for electrical contractors. On the one hand, it allows them to reach a wider audience quickly and affordably. It also helps people to quickly the contractor and contact them without leaving their home. But, on the other hand, it has made some people think they don’t need electrical contractors at all.
+The internet has been both a blessing and a curse for electrical contractors. On the one hand, it allows them to reach a wider audience quickly and affordably. It also helps people to quickly research the contractor and contact them without leaving their home. But, on the other hand, it has made some people think they don’t need electrical contractors at all.
 
 This is thanks to the rise of DIY. All one needs to do these days is Google how to do some electrical work, and an article or video will pop up with instructions. No need to call a contractor – they just need to purchase the tools (if they don’t have them).
 
